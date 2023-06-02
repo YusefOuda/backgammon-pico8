@@ -1,1 +1,1 @@
-https://yusefouda.github.io/31/
+https://31.yusefouda.com
